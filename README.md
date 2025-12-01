@@ -94,7 +94,8 @@ To set APP Key
 
 <img width="903" height="974" alt="image" src="https://github.com/user-attachments/assets/a6a581d7-5e37-40e0-b5f1-26579b7b1e85" />
 
-![WhatsApp Image 2025-12-01 at 5 28 11 PM](https://github.com/user-attachments/assets/61371766-71f6-488f-9c47-310212cf35e1)
+![WhatsApp Image 2025-12-01 at 5 32 51 PM](https://github.com/user-attachments/assets/b2284675-7af9-4334-99b6-8bc8b767e71e)
+
 
 
 ## Result: 
