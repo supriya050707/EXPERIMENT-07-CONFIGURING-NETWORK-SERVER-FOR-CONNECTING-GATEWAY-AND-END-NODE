@@ -85,7 +85,8 @@ To set APP Key
 <img width="1600" height="851" alt="image" src="https://github.com/user-attachments/assets/6e808250-0d5e-4169-8c2c-c488a96a28f1" />
 
 
-<img width="1920" height="1200" alt="image" src="https://github.com/user-attachments/assets/14b230da-8ada-47cc-93cf-65915967976f" />
+![WhatsApp Image 2025-12-01 at 5 26 44 PM](https://github.com/user-attachments/assets/7689f020-c4d9-42e2-9769-f8c4a0c2a961)
+
 
 <img width="911" height="942" alt="image" src="https://github.com/user-attachments/assets/9327178d-f717-424f-ab79-f301356e5309" />
 
@@ -93,7 +94,8 @@ To set APP Key
 
 <img width="903" height="974" alt="image" src="https://github.com/user-attachments/assets/a6a581d7-5e37-40e0-b5f1-26579b7b1e85" />
 
-<img width="1600" height="871" alt="image" src="https://github.com/user-attachments/assets/9fa97f26-0cc5-409a-8bca-cb06cb05fb1f" />
+![WhatsApp Image 2025-12-01 at 5 28 11 PM](https://github.com/user-attachments/assets/61371766-71f6-488f-9c47-310212cf35e1)
+
 
 ## Result: 
 
